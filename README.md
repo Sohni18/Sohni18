@@ -3,8 +3,8 @@
 
       🔸️Reading books 📚
       🔸️Listening Music 🎧 
-      🔸️Coding 👩‍💻 (But I'm a bit new to it)
-- 📫 How to reach me @sohnimalik16 (my Insta ID ✌️)
+      🔸️Coding 👩‍💻
+- 📫 How to reach me, Mail me at @sohni129btcsai22@igdtuw.ac.in 
 
 <!---
 Sohni18/Sohni18 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
